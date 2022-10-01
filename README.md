@@ -1,1 +1,1 @@
-# CSE110
+Lemin Jin's User Page
